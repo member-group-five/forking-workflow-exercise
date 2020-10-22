@@ -7,3 +7,7 @@
 - Melt high-quality chocolate
 - Pour the chocolate over the taco
 - (Optional) add powdered sugar and strawberries
+
+# Serving
+
+- Serve on a plate with whipped cream
