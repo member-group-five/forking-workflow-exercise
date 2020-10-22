@@ -13,3 +13,5 @@ Peru. If you can make the pickles with Peruvian aji amarillo, please do.
 - Guacamole
 - Yogurt
 - Tortilla of choice, warmed in a dry pan
+
+This recipe is same as that of TacoMundo :) -Nitish 
