@@ -8,4 +8,4 @@
 
 # Not an animal but OK
 
-- Taco
+- Chocolate taco
