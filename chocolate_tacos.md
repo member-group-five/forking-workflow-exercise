@@ -1,8 +1,9 @@
-## Disgusting Chocolate Tacos
+## Delicious Chocolate Tacos
 
 # Preparation
 
 - Take a taco
-- put cacao in the taco
-- put milk in the taco
-- microwave for 20 minutes
+- Fill it with nice ingredients
+- Melt high-quality chocolate
+- Pour the chocolate over the taco
+- (Optional) add powdered sugar and strawberries
