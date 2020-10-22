@@ -5,3 +5,7 @@
 - Chicken
 - Crocodile
 - Toad
+
+# Not an animal but OK
+
+- Taco
